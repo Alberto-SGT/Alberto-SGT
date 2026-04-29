@@ -7,7 +7,7 @@
 🌐 **Portfolio:** [alberto-sgt.github.io/Alberto-SGT](https://alberto-sgt.github.io/Alberto-SGT/)
 
 📧 albertosantiagogarciatalavera@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/alberto-sgt)
+🔗 [LinkedIn](https://www.linkedin.com/in/alberto-santiago-garc%C3%ADa-talavera-083484194/)
 
 ---
 
